@@ -3,7 +3,7 @@
   </p>
 
 
-[wip rentry](https://rentry.co/boyf4il)&[carrd](https://carrd.co/nijntjette)⠀⠀pj⠀  or⠀  laina ᡣ𐭩 .𖥔˚⠀⠀[xe](https://pronouns.cc/nijntje)⠀  ﾉ⠀  [he](https://pronouns.cc/nijntje)⠀  ﾉ⠀  [neos](https://pronouns.cc/nijntje)
+[wip rentry](https://rentry.co/boyf4il)&[carrd](https://nijntjette.carrd.co)⠀⠀pj⠀  or⠀  laina ᡣ𐭩 .𖥔˚⠀⠀[xe](https://pronouns.cc/nijntje)⠀  ﾉ⠀  [he](https://pronouns.cc/nijntje)⠀  ﾉ⠀  [neos](https://pronouns.cc/nijntje)
 
 ˚✩₊˚⊹ kdrama enjoyer⠀  &⠀  kleptonarc⠀  ⋆.˚⠀  [young-woo](https://autistic-characters.fandom.com/wiki/Woo_Young-woo) apologist
   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀
