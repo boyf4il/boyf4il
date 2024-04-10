@@ -21,3 +21,7 @@ this user is autistic ! i have a lot of trouble talking to people & get very anx
   <p align="center">
 young-woo is my comfort skin, pls don't take inspo/copy from her! other skins r fine to take inspo from!! i'd like to see!! :0c
   </p>
+
+<p align="center">
+<img src="https://i.imgur.com/gbQ4f9R.png" />
+</p>
