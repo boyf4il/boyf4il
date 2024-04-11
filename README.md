@@ -11,7 +11,7 @@
 <img src="https://i.pinimg.com/564x/51/80/7a/51807afe68454b3eba0ee1d0b060cec6.jpg" />
 </p>
 
-online: INT !!⠀  [**ᡣ𐭩**](https://tumblr.com/nijntjette)⠀  idle: prob in class! w2i / whisper⠀  [**ᡣ𐭩**](https://pinterest.com/nijntjette)⠀  busy: afk / not responding :(
+online: INT !!⠀  [**ᡣ𐭩**](https://tumblr.com/nijntjette)⠀  idle: prob in class! w2i⠀  [**ᡣ𐭩**](https://pinterest.com/nijntjette)⠀  busy: afk / not responding :(
 
 ***
 
