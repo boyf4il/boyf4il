@@ -1,3 +1,5 @@
+**currently banned from ponytown lol**
+
 <p align="center"> 
   @boyf4il on disc !! nijntjette on everything else
   </p>
